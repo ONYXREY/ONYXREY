@@ -37,4 +37,4 @@ Mahasiswa / Developer yang tertarik pada pengembangan aplikasi Web & Mobile. Saa
 ### 📫 jangan lupa follow ges:D
 - 💼 LinkedIn: [https://www.linkedin.com/in/kevin-mannuel-susanto-8872a3312/]
 - 📧 Email: [mannuelsusantokevin@gmail.com]
-- instagram: [kevinms_22]
+- instagram: [https://www.instagram.com/kevinm.s03/?hl=en]
